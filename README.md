@@ -14,6 +14,8 @@
 
 :musical_score: :art: I paint and play piano as an amateur. Greenday,Coldplay,Led Zeppelin,Rich Brian,Beyond & dubstep
 
+:video_game: I play **Kerbal Space** Program and **Counter Strike: Global Offensive**
+
 ---
 
 My discord: Alex Huang#5959      Telephone: (+86)18094268894       High school student
