@@ -12,7 +12,7 @@
 
 :telescope: I am a enthusiast in **Astrophysics**; I've also created a simple tutorial of Physics:Mechanics, which you guys can see later on my website linked below.
 
-:musical_score:|:art: I paint and play piano as an amateur. Greenday,Coldplay,Led Zeppelin,Rich Brian,Beyond & dubstep
+:musical_score::art: I paint and play piano as an amateur. Greenday,Coldplay,Led Zeppelin,Rich Brian,Beyond & dubstep
 ---
 
 My discord: Alex Huang#5959      Telephone: (+86)18094268894       High school student
